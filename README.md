@@ -1,1 +1,2 @@
 # -La-inestabilidad-electoral-en-Am-rica-Latina
+Las políticas económicas implementadas en la región han transformado el panorama político. La crisis, el desempleo y la desigualdad han erosionado la confianza en los partidos tradicionales, impulsando nuevas fuerzas políticas. La volatilidad electoral refleja el descontento social y la búsqueda de alternativas ante un sistema que no responde a las necesidades de la ciudadanía.
